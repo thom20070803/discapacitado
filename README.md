@@ -1,0 +1,2 @@
+# discapacitado
+para discapacitados
